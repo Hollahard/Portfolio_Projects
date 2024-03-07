@@ -1,1 +1,1 @@
-List will be project I've done with using MS Excel.
+A few projects I have done will be posted here.
